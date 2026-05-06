@@ -1,1 +1,1 @@
-# Prvi-doma-i-astrostatistika
+# Prvi-domaci-astrostatistika
